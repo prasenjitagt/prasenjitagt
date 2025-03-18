@@ -12,5 +12,4 @@ GitHub - https://github.com/prasenjitagt
 
 -----------------------------------------------------------------------------------------
 Contact me on:
-Phone: +919366217407
 Email: prasanjitacademic@gmail.com
